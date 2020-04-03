@@ -1,1 +1,2 @@
-jaffenoz is me
+Zack Jaffe-Notier
+jaffenoz@oregonstate.edu
